@@ -30,7 +30,7 @@ I contribute across the full development lifecycle: requirements analysis, syste
 
 Open to remote roles, contract engagements, and product-focused collaborations.
 
-📫 Reach me: [your email or link]
+📫 Reach me: rishparadox@gmail.com
 
 ---
 
